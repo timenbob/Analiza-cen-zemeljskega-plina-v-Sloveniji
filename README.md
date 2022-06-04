@@ -12,6 +12,7 @@ Naše podatke smo pridobili iz statističnega urada republike Slovenije oziroma 
 
 ### Povezava do vido posnetka na YouTubu
 
+https://youtu.be/k4RwoBtc5Xw
 
 
 Pripravil: Timen Bobnar
